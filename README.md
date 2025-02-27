@@ -18,7 +18,7 @@ They will help you develop and execute an SEO strategy in line with your small b
 ## Top 15 Affordable SEO Companies for Small Businesss - Complete List
 
 ## 1. **Mostro**  
-**Website**: https://mostro.io  
+**Website**: https://mostro.io   
 
 To kickstart your SEO journey, consider partnering with Mostro, a leading provider of affordable SEO services.
 
