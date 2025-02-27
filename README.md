@@ -1,4 +1,4 @@
-# Affordable SEO Services For Small Businesses
+# Affordable SEO Services For Small Business
 
 In this article, we will explore the concept of affordable SEO services for small business, highlighting how they differ from "cheap" alternatives. We will delve into the various types of affordable SEO services available for your small business website, focusing on their benefits and value proposition.
 
